@@ -15,3 +15,23 @@
 ![20230507_210641 3](https://github.com/user-attachments/assets/3e7c17c2-afb1-4cc3-a403-65fe708f6668)
 ![IMG_3979](https://github.com/user-attachments/assets/7979e1af-b820-4494-8d81-fb6b484c6b63)
 # Albadar
+Welcome to AL-BADAR TOURS AND TRAVELS
+
+📍 Location: Chikmagalur
+
+📞 WhatsApp Booking: +91 81472 89313
+
+🌄 Our 4-Day Jeep Trekking Plan
+
+Day 1: Siri Statue, Mullayanagiri, Baba Budangiri, Zipline, Jhari Falls
+Day 2: Kallathigiri Falls, Z Point, Hebbe Falls, Rose Garden
+Day 3: Safari, Bandekal Gudda, Waterfalls, Lake
+Day 4: Yagachi Water Sports, Belur & Halebidu Temple Visit
+🚫 Rules:
+
+No Smoking 🚭
+No Alcohol ❌
+No Plastic Use ♻️
+📸 Sample Gallery
+
+Jeep TourWaterfallForest TrekCampfireHill StationChikmagalur Nature
